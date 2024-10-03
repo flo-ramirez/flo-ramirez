@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on little projects
 - 📫 How to reach me: at my e-mail floramirez1997@proton.me
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I have a collection of 18 board games! 
+- ⚡ Fun fact: I have a growing collection of 18 board games! 
 
 <!---
 flo-ramirez/flo-ramirez is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
